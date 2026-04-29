@@ -35,3 +35,5 @@ I have a strong foundation in software engineering concepts and an absolute love
 
 ### 📫 Let's Connect!
 - **Email:** [maria.mohammad.almaamri@gmail.com](mailto:maria.mohammad.almaamri@gmail.com)
+- **LinkedIn:** [Maria Mohammad Al-Maamri](www.linkedin.com/in/
+maria-mohammad-al-ma-amri-059035390)
